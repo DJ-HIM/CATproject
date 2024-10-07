@@ -1,5 +1,5 @@
 # **_Maine Coon (American Longhair)_**
-![maine moon](../sm47ucg7.png)
+![maine moon](sm47ucg7.png)
 >Origin - Maine, United States
 
 The Maine Coon is a large domesticated cat breed. One of the oldest natural breeds in North America, the breed originated in the U.S. state of Maine, where it is the official state cat.
